@@ -1,5 +1,7 @@
 # Play Sprunki Chaotic Good Online Free
 
+\>\>\> [Sprunki Chaotic Good Online Free](https://sprunkiscrunkly.com/sprunki-chaotic-good/)
+
 ## What is Sprunki Chaotic Good?
 
 ![Sprunki Chaotic Good](https://s.sprunkiscrunkly.com/raw-games/sprunki-chaotic-good/sprunki-chaotic-good.png "Sprunki Chaotic Good")
